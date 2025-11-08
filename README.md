@@ -11,3 +11,7 @@ Rasanya menyakitkan, namun di saat yang sama, ada kehangatan di dalamnya. Karena
 
 Namun, pada akhirnya, kita harus jujur pada diri sendiri-bahwa beberapa hal memang hanya bisa dikagumi, bukan dimiliki.
 Mengagumi yang sulit digapai bukan berarti menyerah, tetapi tentang memahami batasan dan menerima kenyataan. Kita belajar untuk bersyukur atas perasaan yang pernah hadir, tanpa berharap lebih dari apa yang seharusnya. Karena kadang, cinta yang paling tulus adalah cinta yang tahu cara menemukan keindahan tanpa menggenggam.
+
+---
+
+sorry
