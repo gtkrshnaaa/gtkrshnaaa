@@ -1,3 +1,3 @@
 # Titled Artisan Prince.
-I code **everywhere**. 23 y.o.   
+I code **everywhere**, **anyway**. 23 y.o.   
 
